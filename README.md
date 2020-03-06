@@ -1,2 +1,0 @@
-# moyaghini
-personal website
